@@ -2,6 +2,6 @@
 
 ## Nimit Jain
 
-Trainee Software Consultant - Knoldus
+Trainee Software Consultant @ Knoldus
 
 JRE GROUP OF INSTITUTIONS, AKTU
